@@ -1,0 +1,1 @@
+Small snack food items are permitted if it is an item consumed by the individual bringing it in and if that individual is seated at a table or carrel. Spill proof drink containers are allowed in the library. No fast food cups. Food or beverage is not permitted at the computers. [Click here for specific snacks allowed](http://libguides.ivytech.edu/c.php?g=399021&p=2711783).
