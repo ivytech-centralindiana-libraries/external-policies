@@ -1,0 +1,1 @@
+In addition to the library use policies, the library requires the same Code of Conduct as described in the Student Responsibilities section of the [Code of Student Rights and Responsibilities](https://www.ivytech.edu/files/CodeOfStudentRights-Responsibilities2015.pdf) beginning on page 9.
