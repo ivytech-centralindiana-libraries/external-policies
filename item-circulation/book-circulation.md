@@ -1,0 +1,3 @@
+Up to 10 books can be checked out at any one time for current Ivy Tech Students. Books are checked out for 2 weeks at a time. A book may be renewed unless another patron has placed a hold on it. Books may not be checked out over semester breaks unless you are registered for classes for the following semester.
+
+Reserve books are checked out for 4 hours at a time and may leave the library.  A reserve book can be taken home overnight if it is checked out within 4 hours of when the library closes. Click here to read the complete [textbook policy](http://libguides.ivytech.edu/c.php?g=399021&p=2719505).
