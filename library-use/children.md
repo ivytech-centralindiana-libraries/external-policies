@@ -1,0 +1,1 @@
+Children under 15 years old are not allowed in instructional areas. Children at least 15 years old can use the Library unsupervised. I.D. may be required. Click here for the complete Children in Library policy.
