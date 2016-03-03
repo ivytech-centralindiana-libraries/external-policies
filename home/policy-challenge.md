@@ -1,0 +1,1 @@
+Any student or employee of Ivy Tech Community College may formally challenge any policy used in the Ivy Tech Library on the basis of appropriateness. This option is for the purpose of considering the opinions of those persons in the community who are not directly involved in the decision-making process.
