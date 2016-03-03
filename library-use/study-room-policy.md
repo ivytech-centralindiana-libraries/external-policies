@@ -1,0 +1,1 @@
+Group study rooms may be available for use by groups of two or more students. Study rooms are checked out for a four hour period with a $.05 a minute overdue charge. All people in the group are considered one "check out." [Click here for a complete list of group study room policies](http://libguides.ivytech.edu/c.php?g=399021&p=2711819).
