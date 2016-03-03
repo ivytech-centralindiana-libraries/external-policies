@@ -1,0 +1,1 @@
+The primary mission of the library at Ivy Tech is to provide access to materials, information, and services that support and supplement the educational mission of the College. The library's primary users are students, faculty, and staff at Ivy Tech. The library serves as a source of instruction and assistance in the use of its resources and services.
