@@ -25,4 +25,5 @@ To obtain a community user card for a child, the parent must present:
 
 The parent or adult guardian must sign for a dependent under the age of 18.  The parent or adult guardian assumes responsibility for the return of all library materials, paying fines, paying for damage to or loss of materials, and notifying the library of any change in name or address.
 
-Reminder: ALL community patrons must present an Ivy Tech library card in order to check out library materials.
+#### Reminder: 
+**ALL** community patrons must present an Ivy Tech library card in order to check out library materials.
